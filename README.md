@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @vilindaaa
+- 👀 I’m interested in explorer my projects
+- 💞️ I’m looking to collaborate on alvaro carvalho
